@@ -1,1 +1,0 @@
-# Covid_10.patka_.dev
